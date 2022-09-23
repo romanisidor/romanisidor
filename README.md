@@ -4,7 +4,7 @@
 
 🚀I love to learn new things everyday!
 
-💡 I’m currently studying Engineering in information technologies at Universidad Tecnológica de Puebla
+💡 Class of 2022: Engineering in information technologies at Universidad Tecnológica de Puebla
 
 📫 How to reach me: romanantonioisidor@gmail.com
 
